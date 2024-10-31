@@ -2,10 +2,12 @@
 
 ★ 16 y/o, she/they pronouns, bisexual and genderqueer
 
-☆ neurodivergent, tone indicators preferred but not necessary
+☆ taken by my lovely boyf <3 pls no flirting!
 
-★ free to c+h , w2i if away/busy , dnc
+★ neurodivergent, tone indicators preferred but not necessary
 
-☆ int undertale/deltarune fans!! (esp. fellow berdly enjoyers)
+☆ free to c+h , w2i if away/busy , dnc
 
-★ check out mi strawpage , carrd , pronouns.page , etc.
+★ int undertale/deltarune fans!! (esp. fellow berdly enjoyers)
+
+☆ check out mi strawpage , carrd , pronouns.page , etc. !!
