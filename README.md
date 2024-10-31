@@ -1,4 +1,4 @@
-☆ piefullofknives on socials , call me aubrey, aubs or aubbie
+☆ piefullofknives on socials ; call me aubrey, aubs or aubbie
 
 ★ 16 y/o, she/they pronouns, bisexual and genderqueer
 
